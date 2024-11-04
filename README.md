@@ -1,4 +1,1 @@
-- 👋 Hi, I’m @chicken992 But you can call me chicken if you like
-- 👀 I’m interested in I love cats and dogs i love making pony skins it's fun
-- 📫 How to reach me go to github and follow me if you like
-- ⚡ Fun fact: I love my dog name oreo he's sweet he;s my good dog
+![images](https://github.com/user-attachments/assets/c666d5b0-1a27-41fd-809a-b3d2a38a6aa5)
