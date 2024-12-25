@@ -1,1 +1,1 @@
-![__gojou_satoru_and_itadori_yuuji_jujutsu_kaisen_drawn_by_bamthelapis__sample-8f87f928b0bb4f58db60aa545730d9ef](https://github.com/user-attachments/assets/f2747e4e-c44c-4070-9ba5-cb521cf4a1ae)
+![__gojou_satoru_and_itadori_yuuji_jujutsu_kaisen_drawn_by_nashinashisi__sample-a7b0b58206171b97af9722fbf12e6607](https://github.com/user-attachments/assets/1da4ddf9-67f0-4a1f-9999-a22aafd1a885)
